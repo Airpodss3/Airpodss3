@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Airpodss3
 - 👀 I’m interested in polyyxxx
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning ауцауа 
+- 💞️ I’m looking to collaborate on .аммамі
 - 📫 How to reach me ...
 
 <!---
